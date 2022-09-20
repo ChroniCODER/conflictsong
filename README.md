@@ -1,4 +1,4 @@
-je peu ressentir ton corps
+eu posso sentir seu corpo
 When I'm lying in my bed
 Too much confusion
 Going 'round through my head
